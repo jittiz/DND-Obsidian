@@ -3,4 +3,4 @@ the party starts the journey ready for a 9 - 11 day travel to the dwarven Kingdo
 unknow to the party the captain will ask them to do one more thing after the delivery, go far in to the mountain's and deliver this to a special someone, the topaz dragon. 
 
 **Part 1: The travel** 
-helooo
+helooo goon crrazy stuel
