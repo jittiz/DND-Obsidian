@@ -1,8 +1,0 @@
-
-**Appearance**
-
-**Personality**
-
-**Lore**
-
-**Death**
