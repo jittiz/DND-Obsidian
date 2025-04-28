@@ -1,0 +1,3 @@
+It looks like a vinyl disk. Its a black very thin disk with a small hole in the middle. close to the middle there the disk is coloured differently. The black part of the disk has a pattern, like a ripple from water or the circles inside a tree is coming as the center point of the disk, this pattern follows the whole way out. the black part is also slightly reflective and shies a little light clearly showing the groove of the disk.
+
+The disk lets the party change music in real life.

@@ -1,0 +1,1 @@
+the hunter's guild will be in some places, mostly where wild animals are often seen and dangerous. in the elf's forest there will be a hunter's guild where they reward the killing off lizard people. 

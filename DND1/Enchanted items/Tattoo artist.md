@@ -1,0 +1,1 @@
+There is a tattoo artis that can scribe spells on your character. If the spell he tattoos on you is of cantrip level the spell can be cast how many times as the user wants, if the spell uses spell slots it can be cast only once per long rest.

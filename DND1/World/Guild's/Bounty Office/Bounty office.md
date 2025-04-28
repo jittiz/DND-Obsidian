@@ -1,0 +1,1 @@
+the bounty office is not across the whole world. It is dependent on the kingdom where the bounty office is placed in. 
