@@ -1,1 +1,5 @@
-lied a lot to everyone. same lires complex as his son Romeo.
+
+My father, Fontix Briskwood, is an infamous bard who loved spreading rumours and lies about himself. Before he arrived in Widdlewad, the town was quiet. But with him around, there was never a day when something wasn't happening. I always listened to his stories and believed everything he said. I still believe in him and look up to him, wanting to be just like him—a hero.
+One of his rumours in Widdlewad was that he had a romantic relationship with one of the four dragons of the realms, before leaving them for his future wife. 
+
+My mother, Jona Briskwood, had settled down in Widdlewad with Fontix Briskwood and had a child, Romeo. When Fontix told her about wanting to go out on an adventure, Jona was disappointed, but knew that keeping him in Widdlewad would be a shame. She said her goodbyes and told Romeo about how he had to go out to save the world from a Fizban and their evil plan. When Romeo left, she was alone and awaiting both of them at home.
