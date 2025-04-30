@@ -15,3 +15,5 @@ Why he serves as the Hedwyn family supply driver is just for easy gold. now he s
 **relations**
 * [[Hedwyn]] family. He is just there supply driver just to live a normal life. Dose not give a lot of crap about the family but will never lose a single crate for the request.
 * [[Topaz dragon (Solvryn)|Topaz dragon]], when he met the dragon when adventuring was his thing he promised to always come back once in a while to deliver his favourite food, gigantic squid. He grew friendly bond with the dragon.
+
+![[Hero screenshot.png]]
