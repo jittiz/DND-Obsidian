@@ -15,3 +15,8 @@ the party is all together. they are walking or sitting on a big carriage that ha
 * Day 7: still fog that day but just a bit easier to see, nothing really happens that day. later on the fog fully clears up and the party is close to being at later they see a house in the distance, Something even Rowan is confused about. It dose not say on the map. This is Smash Smiths moving house. Later when resting he askes if there is something that scares the party. 
 * Day 8: soon there the snow being more deep now then ever its really getting cold. the day is bright. Rowan sees something at the peak of a small mountain. the players roll perception to see what it is. it is a griffon, yet it just stays there and watches the party go past. that rest he askes what they would do if they could only live one more year.  
 * Day 9: going early like usual, that day the party sees the great walls of [[Dun Khardruk - main city|Khardruk]]. there are stones poking out of the ground that all say in dwarfish the capitals name. bla bla you get in, deliver the supplies, the party gets there gold, then one last thing askes Rowan. bring this box over the mountains, there is someone there that needs this, and he gives the topaz dragonborn dragonborn the box with a smile on his face. say hello from me and he gives the party 20 extra gold each. 
+
+
+Ruiner av en död kung., the story of the king that ruled the world. bla bla, he was migthy and the story he died some time.
+
+ the ruins outside plesawisk, have some old wine barrels. 3 wine barrels. 
