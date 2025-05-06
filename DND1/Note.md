@@ -23,3 +23,6 @@ Instability will come in chapter 2
 instability comes when a the BBEG that is immortal appears single handily destroying a small fortress. this will appear a little further in to the story of the campaign. 
 
 Name of charracter are from whitch place they are from or what race or maybe family 
+
+
+Quest to figgure out what would win. one of each magical creature or 1 billion insects
